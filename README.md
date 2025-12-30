@@ -1,1 +1,1 @@
-[<img width="350" height="" alt="image" src="https://github.com/user-attachments/assets/3681ca12-8a3b-4ea4-b29b-cb00c9cc84f3" />](https://t.me/k2hero)
+[<img width="350" height="" alt="image" src="https://github.com/user-attachments/assets/3681ca12-8a3b-4ea4-b29b-cb00c9cc84f3" />](https://1wozms.com/?p=at7p))
